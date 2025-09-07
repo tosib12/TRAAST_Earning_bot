@@ -1,1 +1,0 @@
-# TRAAST_Earning_bot
